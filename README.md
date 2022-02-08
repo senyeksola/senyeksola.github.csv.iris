@@ -1,2 +1,0 @@
-# senyeksola.github.csv.iris
- 
